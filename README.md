@@ -1,0 +1,1 @@
+Polished minimal light portfolio — replace placeholders with your content.
